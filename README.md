@@ -31,3 +31,4 @@ The series was inspired by 1980s pop culture, including movies like *E.T.* and *
 
 ## Rating
 ⭐ ⭐ ⭐ ⭐ ⭐ (5/5)
+
